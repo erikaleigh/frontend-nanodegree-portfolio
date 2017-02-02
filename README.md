@@ -12,8 +12,5 @@ Feeling uninspired by the portfolio? Here's a list of cool portfolios I found af
 * [http://playonpixels.prosite.com/21591/projects](http://playonpixels.prosite.com/21591/projects)
 * [http://colintrenter.prosite.com/](http://colintrenter.prosite.com/)
 * [http://calebmorris.prosite.com/](http://calebmorris.prosite.com/)
-* [http://www.cullywright.com/](http://www.cullywright.com/)
 * [http://yourjustlucky.com/](http://yourjustlucky.com/)
 * [http://nicoledominguez.com/portfolio/](http://nicoledominguez.com/portfolio/)
-* [http://www.roxannecook.com/](http://www.roxannecook.com/)
-* [http://www.84colors.com/portfolio.html](http://www.84colors.com/portfolio.html)
